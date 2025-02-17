@@ -1,2 +1,4 @@
 # -
-المستقبل الشرق بخطوة .
+المستقبل الشرق بخطوة .MO?LOVE<FOLDER?LOVEPIC
+PICTUR<APP1995+1997<END
+APPLE<667
